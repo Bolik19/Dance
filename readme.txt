@@ -1,1 +1,1 @@
-this is the project for slutty dances
+this is the project for monk dances
